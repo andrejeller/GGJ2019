@@ -1,0 +1,1 @@
+You can only play this .apk in PICO VR
